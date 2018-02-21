@@ -9,7 +9,7 @@ Sexual language and imagery is not appropriate for any meeting or user group ven
 Be kind to others.
 
 Participants asked to stop any harassing behavior are expected to comply immediately.
-Anyone violating these rules repeatedly or unapologetically will be asked to leave the meeting, and will be refused entrance to future meetings.
+Anyone violating these rules repeatedly or unapologetically will be asked to leave the meeting, and may be refused entrance to future meetings.
 
 ## credit where credit is due
 
