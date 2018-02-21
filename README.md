@@ -4,7 +4,7 @@ Barcelona on Rails is dedicated to providing a harassment-free user group experi
 
 Harassment includes offensive verbal comments related to sex, sexual orientation, gender identity, disability, physical appearance, body size, race, religion, sexual images in public spaces, deliberate intimidation, stalking, following, harassing photography or recording, sustained disruption of talks or other events, inappropriate physical contact, and unwelcome sexual attention.
 
-Sexual language and imagery is not appropriate for any meeting or user group venue, including talks. Be careful in the words that you choose. Do not insult or put down other attendees. Behave civilly. Remember that sexist, racist, and other exclusionary jokes can be offensive to those around you. Offensive statements or jokes are not appropriate for the meetings of our user group.
+Sexual language and imagery is not appropriate for any meeting or user group venue, including talks. Be careful in the words that you choose. Do not insult or put down other attendees. Behave civilly. Remember that sexist, racist, and other exclusionary jokes can be offensive to those around you. Offensive statements or jokes are not appropriate for the meetings and discussions of our user group.
 
 Be kind to others.
 
